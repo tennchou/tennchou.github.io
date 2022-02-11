@@ -1,0 +1,1 @@
+オンライン診療に関しては<a href="images/digisma_001.png">デジスマ</a>とZoomを用いて早朝に再来のみ受け付けています。予約は<a href="https://qr.digikar-smart.jp/543ae4ac-66b6-457e-9cf7-8b38e34a9c9c/reserve">こちら</a>からお願いします。
